@@ -1,0 +1,1 @@
+# baldur-s-gate-3-mod-external
